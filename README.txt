@@ -9,3 +9,5 @@ La bIMIse
 
 PS : n'hésitez pas à pull-request
 PS2 : ne ramenez PAS vos machines !
+
+PRÉSENCE OBLIGATOIRE POUR LES PRÉTENDANTS AU CLUB TRÈS PRISÉ D'ARACHNOLOGIE
